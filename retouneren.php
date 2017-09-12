@@ -1,0 +1,3 @@
+Retouren <br>
+
+U heeft recht op een wettelijke zichttermijn van 14 werkdagen. Bevalt het artikel niet dan kunt u het binnen die veertien werkdagen terugsturen zonder opgaaf van reden (met een kopie van de originele factuur en uw rekeningnummer), mits het artikel ongebruikt is en in de orginele, onbeschadigde verpakking zit. De verzendkosten voor het retourneren zijn altijd voor de klant en de klant dient het pakket dus voldoende te frankeren. Ongefrankeerde pakketten worden niet in ontvangst genomen en gaan direct retour afzender. Na ontvangst boeken wij het bedrag binnen twee weken terug.
